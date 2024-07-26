@@ -15,7 +15,7 @@ I approach the possibility of contributing to the cybersecurity landscape and ha
 
 **Thank you for considering my profile. I am eager to collaborate with a forward-thinking organization that shares my ardor for IT and cybersecurity.**
 
-Telegram - @SLEEPY_LORD
+Telegram - @Nuliaxes
 
 *****************************************************************************************************************************************************
 <h1 align="center">Всем привет, я Сергей Литвинов
@@ -35,4 +35,4 @@ Telegram - @SLEEPY_LORD
 
 **Спасибо за рассмотрение моего профиля. Я с нетерпением ожидаю возможности сотрудничества с передовой организацией, разделяющей мою страсть к IT и кибербезопасности.**
 
-Telegram - @SLEEPY_LORD
+Telegram - @Nuliaxes
