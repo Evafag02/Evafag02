@@ -8,6 +8,8 @@
 A student who want get Computer science and Data science. 
 And become a megamind
 
+"I would like to be able to code, but there is no time for this,  need to code" - Somebody
+
 *“Trees sprout up just about everywhere in computer science.”* — Donald Knuth
 
 ---
